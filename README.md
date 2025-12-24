@@ -1,5 +1,5 @@
 ## hi
-TETO MY GLORIOUS QUEEN...  (note um i prefer defoko/uta utane)
+
 
 i made this just to get source code for projects and stuff, mostly old roblox revivals who are hosted serverside.
 feel free to cone up to me i promise im kind (usually)
